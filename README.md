@@ -40,11 +40,24 @@
 34. **CREATIVE LOADING** : https://pureemaison.com
 35. **ANTON** : https://www.aton.is
 36. **INTERISE SOLUTIONS** : https://www.interise.co
-37. **POSTER TV** : https://posterco.tv
-38. **CAN DRINK BRAND IMAGINATION** : https://emaillove.com/email-inspiration-from-swoon
-39. **RETRO TYPE** : https://www.byooooob.com
-40. **RAIL** : https://rail.io
-41. **HELLO COMRADE** : https://hellocomradestudio.com
+37. **SANDELS** : https://shiftrobotics.io38
+38. **VALLEY** : https://joinvalley.co39
+39. **HIREZILLA** : https://hirezilla.com40
+40. **ALLTA** : https://www.allta.ie41
+41. **CHARACTER STUDIO** : https://www.character.studio42
+42. **HUMANE** : https://humane.com43
+43. **PHOPET** : https://phopet.com44
+44. **JACKEY** : https://www.jackytwostep.com45
+45. **RETRO TYPE** : https://rickbarry.com46
+46. **EXCLUSIBLE** : https://www.exclusible.com47
+47. **TECH DOCS** : https://www.nutrient.io48
+48. **GOOD NIGHT** : https://www.goodnight.co.uk49
+49. **V7** : https://www.v7labs.com
+50. **POSTER TV** : https://posterco.tv
+51. **CAN DRINK BRAND IMAGINATION** : https://emaillove.com/email-inspiration-from-swoon
+52. **RETRO TYPE** : https://www.byooooob.com
+53. **RAIL** : https://rail.io
+54. **HELLO COMRADE** : https://hellocomradestudio.com
 
 
 
