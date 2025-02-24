@@ -31,34 +31,63 @@
 25. **E-COMMERCE WITH DEMO** : https://unplainofficial.com
 26. **AI DESIGN** : https://maxibestof.one/websites/70848-v7-labs
 27. **VIBRANT** : https://www.vibrantpractice.com/?ref=lapaninja
-28. **VI COOL BRAND** : https://www.via.au
-29. **RIGHT SCROLLING** : https://www.oddcommon.com
-30. **ICEBERG** : https://www.icebergdoc.org
-31. **YELLOWFELLOW** : https://yellowfellow.tv
-32. **DESIGNER PORTFOLIO** : https://orrin.webflow.io
-33. **100 VH** : https://bendowie.com
-34. **CREATIVE LOADING** : https://pureemaison.com
-35. **ANTON** : https://www.aton.is
-36. **INTERISE SOLUTIONS** : https://www.interise.co
-37. **SANDELS** : https://shiftrobotics.io38
-38. **VALLEY** : https://joinvalley.co39
-39. **HIREZILLA** : https://hirezilla.com40
-40. **ALLTA** : https://www.allta.ie41
-41. **CHARACTER STUDIO** : https://www.character.studio42
-42. **HUMANE** : https://humane.com43
-43. **PHOPET** : https://phopet.com44
-44. **JACKEY** : https://www.jackytwostep.com45
-45. **RETRO TYPE** : https://rickbarry.com46
-46. **EXCLUSIBLE** : https://www.exclusible.com47
-47. **TECH DOCS** : https://www.nutrient.io48
-48. **GOOD NIGHT** : https://www.goodnight.co.uk49
-49. **V7** : https://www.v7labs.com
-50. **POSTER TV** : https://posterco.tv
-51. **CAN DRINK BRAND IMAGINATION** : https://emaillove.com/email-inspiration-from-swoon
-52. **RETRO TYPE** : https://www.byooooob.com
-53. **RAIL** : https://rail.io
-54. **HELLO COMRADE** : https://hellocomradestudio.com
-55. **VIDEO** : https://www.microdot.vision
+28. **DESIGN COMAPNY** : https://www.deptagency.com/en-apac
+29. **VI COOL BRAND** : https://www.via.au
+30. **RIGHT SCROLLING** : https://www.oddcommon.com
+31. **ICEBERG** : https://www.icebergdoc.org
+32. **YELLOWFELLOW** : https://yellowfellow.tv
+33. **DESIGNER PORTFOLIO** : https://orrin.webflow.io
+34. **100 VH** : https://bendowie.com
+35. **CREATIVE LOADING** : https://pureemaison.com
+36. **ANTON** : https://www.aton.is
+37. **INTERISE SOLUTIONS** : https://www.interise.co
+38. **SANDELS** : https://shiftrobotics.io38
+39. **VALLEY** : https://joinvalley.co39
+40. **HIREZILLA** : https://hirezilla.com40
+41. **ALLTA** : https://www.allta.ie41
+42. **CHARACTER STUDIO** : https://www.character.studio42
+43. **HUMANE** : https://humane.com43
+44. **PHOPET** : https://phopet.com44
+45. **JACKEY** : https://www.jackytwostep.com45
+46. **RETRO TYPE** : https://rickbarry.com46
+47. **EXCLUSIBLE** : https://www.exclusible.com47
+48. **TECH DOCS** : https://www.nutrient.io48
+49. **GOOD NIGHT** : https://www.goodnight.co.uk49
+50. **V7** : https://www.v7labs.com
+51. **POSTER TV** : https://posterco.tv
+52. **CAN DRINK BRAND IMAGINATION** : https://emaillove.com/email-inspiration-from-swoon
+53. **RETRO TYPE** : https://www.byooooob.com
+54. **RAIL** : https://rail.io
+55. **HELLO COMRADE** : https://hellocomradestudio.com
+56. **VIDEO** : https://www.microdot.vision
+57. **SOFTWARE COMPANY D** : https://diffco.us
+58. **SOFTWARE COMPANY FOOTER** : https://ventionteams.com
+59. **SOFTWARE COMPANY D** : https://s-pro.io
+60. **IT COMPANY** : https://ueno.co
+61. **IT COMPANY** : https://www.akqa.com
+62. **SDCWD** : https://www.reaktor.com
+63. **SDCWD** : https://lumenalta.com
+64. **SDCWD** : https://miro.com
+65. **SDCWD** : https://www.hugeinc.com
+66. **SDCWD** : https://www.rga.com
+67. **SDCWD** : https://buffer.com
+68. **COOL SDCWD** : https://mobbin.com
+69. **WHAT WE DO** : https://www.ramotion.com
+70. **INSTRUMENT** : https://www.instrument.com
+71. **FOOTER D** : https://ustwo.com
+72. **CREATIVE** : https://tubikstudio.com
+73. **1 PAGE HOVER** : https://www.metalab.com
+74. **KINTO** : https://www.kinto-technologies.com
+75. **Z1** : https://www.z1.digital
+76. **CARTOON TYPE** : https://www.ohhmyads.com
+77. **ZEBRA TYPE** : https://www.spotcreates.com
+78. **PIXELS TYPE** :  https://www.leeroy.ca
+79. **MOVING PIXELS** : https://www.crftd.nl
+80. **REAL CREATIVITY** : https://cretivox.com
+81. **MEET OUR TEAM** : https://radiance.family
+82. **D&L** : https://dorstenlesser.com
+83. **BOLD TYPE** : https://valentincheval.design/project/bitmex
+85. *MORE AWWWARDS INSPIRATIONS* : https://www.awwwards.com/websites/?award=nominees&category=technology
 
 
 
