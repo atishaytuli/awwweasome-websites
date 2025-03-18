@@ -88,6 +88,11 @@
 82. **D&L** : https://dorstenlesser.com
 83. **BOLD TYPE** : https://valentincheval.design/project/bitmex
 85. *MORE AWWWARDS INSPIRATIONS* : https://www.awwwards.com/websites/?award=nominees&category=technology
+86. **PURPOSE TALENT** : https://www.purposetalent.xyz
+87. **CANDICA** : https://candiac.ca
+88. **FLIGHTY** : https://flighty.com
+89. **SHINOBI** : https://www.shinobitx.com
+90. **VALLEY** : https://joinvalley.co
 
 
 **YOU CAN TAKE MORE INSPIRATIONAL, CREATIVE DESIGN REFRENCE FROM HERE ALSO 🚀**
